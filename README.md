@@ -29,6 +29,5 @@
       or the like watch OUT PLS (⇀‸↼‶) !! 
       unless you're friendly, then i'll like u dw, just dont be weirdo and im sure we'll get along <3
 
-  ![](https://64.media.tumblr.com/7c6fdc813780d4ae6900a4af1f782f55/b35f0b146e0351a5-34/s250x400/8d679d9508fe4acd3e82dedf579d8a602aadad96.pnj) 
 
   
