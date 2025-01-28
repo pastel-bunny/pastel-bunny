@@ -14,7 +14,7 @@
     
     ♡ i luv to talk and make friends, so neva be afraid to dm me abt anything at all or sit w me in pt !!
 
-    ♡ eng isn't my first language, so i am sorry if i talk nonsense qwq
+    ♡ eng isn't my first language, so i am sorry if sometimes i talk nonsense qwq
 
     ♡ sometimes i can be a blabbermouth, sorry i just like being open
 
