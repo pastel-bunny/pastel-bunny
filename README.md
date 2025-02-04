@@ -2,23 +2,23 @@
 
 
      
-     hai!! my name is sonia but u can call me sunny, mimi or sunsun ᦃ
+     hai!! my name is sonia but u can call me sunny, mimi or sunsun 𓂃 ࣪˖ ִֶָ𐀔
    
   
   ![](https://64.media.tumblr.com/5d22a231c4dce13e1738d006111a2c83/ed76da2521d3cea6-6f/s400x600/2b2d8ccae42e43ab9c6b98b29871855db81c9fd0.gifv)
  
  
-    ♡ nicknames and such are fine, i give ppl nicknames and a pet names if that is crossing ur boundaries, pls do let me know!
+      ── .✦  nicknames and such are fine, i give ppl nicknames and a pet names if that is crossing ur boundaries, pls do let me know!
     
-    ♡ im sorry if sometimes i am very sensitive or gatekeepy 
+      ── .✦  im sorry if sometimes i am very sensitive or gatekeepy 
     
-    ♡ i luv to talk and make friends, so neva be afraid to dm me abt anything at all or sit w me in pt !!
+      ── .✦  i luv to talk and make friends, so neva be afraid to dm me abt anything at all or sit w me in pt !!
 
-    ♡ eng isn't my first language, so i am sorry if sometimes i talk nonsense qwq
+      ── .✦  eng isn't my first language, so i am sorry if sometimes i talk nonsense qwq
 
-    ♡ sometimes i can be a blabbermouth, sorry i just like being open
+      ── .✦  sometimes i can be a blabbermouth, sorry i just like being open
 
-    ♡ i can forget to reply to things - if i do, please let me know!!! i try my best out here 
+      ── .✦  i can forget to reply to things - if i do, please let me know!!! i try my best out here ⠀⠀⠀
     
   
   ![](https://64.media.tumblr.com/5d22a231c4dce13e1738d006111a2c83/ed76da2521d3cea6-6f/s400x600/2b2d8ccae42e43ab9c6b98b29871855db81c9fd0.gifv)
