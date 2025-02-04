@@ -2,23 +2,17 @@
 
   ![](https://64.media.tumblr.com/3bdcd560c8636d044e200af0db21482e/0204d4661e661699-3d/s400x600/bb1c6b6f566624224c262309819576b9b30e0280.pnj)
      
-     hai!! my name is sonia but u can call me sunny, mimi or sunsun 𓂃 ࣪˖ ִֶָ𐀔
+      hai!! my name is sonia but u can call me sunny, mimi or sunsun 𓂃 ࣪˖ ִֶָ𐀔
    
   
   ![](https://64.media.tumblr.com/3bdcd560c8636d044e200af0db21482e/0204d4661e661699-3d/s400x600/bb1c6b6f566624224c262309819576b9b30e0280.pnj)
  
- 
-      ── .✦  nicknames and such are fine, i give ppl nicknames and a pet names if that is crossing ur boundaries, pls do let me know!
-    
-      ── .✦  im sorry if sometimes i am very sensitive or gatekeepy 
-    
-      ── .✦  i luv to talk and make friends, so neva be afraid to dm me abt anything at all or sit w me in pt !!
-
-      ── .✦  eng isn't my first language, so i am sorry if sometimes i talk nonsense qwq
-
-      ── .✦  sometimes i can be a blabbermouth, sorry i just like being open
-
-      ── .✦  i can forget to reply to things - if i do, please let me know!!! i try my best out here ⠀⠀⠀
+     nicknames and such are fine, i give ppl nicknames and a pet names if that is crossing ur boundaries, pls do let me know!
+     im sorry if sometimes i am very sensitive or gatekeepy 
+     i luv to talk and make friends, so neva be afraid to dm me abt anything at all or sit w me in pt !!
+     eng isn't my first language, so i am sorry if sometimes i talk nonsense qwq
+     sometimes i can be a blabbermouth, sorry i just like being open
+     i can forget to reply to things - if i do, please let me know!!! i try my best out here ~⠀⠀⠀
     
  ![](https://64.media.tumblr.com/3bdcd560c8636d044e200af0db21482e/0204d4661e661699-3d/s400x600/bb1c6b6f566624224c262309819576b9b30e0280.pnj)
    
