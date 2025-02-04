@@ -1,11 +1,8 @@
- ![](https://64.media.tumblr.com/5486c02b0e9c071d5481ca156cf8a866/8c8e2c6feb9f1c53-5a/s640x960/c4c10933bf23942faad6988af3a1502bf7ef3fdf.pnj)  
 
-
+  ![](https://github.com/user-attachments/assets/9dcf39d5-8ae0-4ff2-8c69-e917d4a5f982)
 
      
      haii!! my name is sonia but u can call me sunny, mimi or sunsun ᦃ
-  
-  ![](https://64.media.tumblr.com/7c6fdc813780d4ae6900a4af1f782f55/b35f0b146e0351a5-34/s250x400/8d679d9508fe4acd3e82dedf579d8a602aadad96.pnj) 
    
 
     ♡ nicknames and such are fine, i give ppl nicknames and a pet names if that is crossing ur boundaries, pls do let me know!
@@ -20,7 +17,7 @@
 
     ♡ i can forget to reply to things - if i do, please let me know!!! i try my best out here 
 
-  ![](https://64.media.tumblr.com/7c6fdc813780d4ae6900a4af1f782f55/b35f0b146e0351a5-34/s250x400/8d679d9508fe4acd3e82dedf579d8a602aadad96.pnj) 
+  ![](https://64.media.tumblr.com/7a0af2859dc5131b4a7e1acc1515b6e3/154daece6a4d200b-1d/s2048x3072/9bf11234b82c09ae0f6eb6252e44f890ab366359.pnj) 
    
       i have quite a few fav games or media !! btw i just post and interact w what i like, 
       mainly my fav chars idc abt anything else (also i like gacha games but it's very critical...like very..
@@ -28,6 +25,8 @@
       for example avid HARDCORE DEFENDER DISCOURSE PARTICIPATOR ETC ETC honkai/genshin/idv/WHATEVA fan
       or the like watch OUT PLS (⇀‸↼‶) !! 
       unless you're friendly, then i'll like u dw, just dont be weirdo and im sure we'll get along <3
+
+  ![](https://64.media.tumblr.com/00f55c6cb28c36f0df7b0754c862a455/502b8a32f40a6231-2c/s1280x1920/68840f04a683d187f137cf3ad183a0052c61c1f8.pnj)  
 
 
   
