@@ -1,11 +1,11 @@
 
 
-  ![](https://64.media.tumblr.com/f0f51fb2bd564a18706ca97f37e28b01/ab09cd1168144eed-3c/s640x960/34419b2c77617a16e9a079e67a4b5998b2167413.pnj)
+  ![](https://64.media.tumblr.com/3bdcd560c8636d044e200af0db21482e/0204d4661e661699-3d/s400x600/bb1c6b6f566624224c262309819576b9b30e0280.pnj)
      
      hai!! my name is sonia but u can call me sunny, mimi or sunsun 𓂃 ࣪˖ ִֶָ𐀔
    
   
-  ![](https://64.media.tumblr.com/5d22a231c4dce13e1738d006111a2c83/ed76da2521d3cea6-6f/s400x600/2b2d8ccae42e43ab9c6b98b29871855db81c9fd0.gifv)
+  ![](https://64.media.tumblr.com/3bdcd560c8636d044e200af0db21482e/0204d4661e661699-3d/s400x600/bb1c6b6f566624224c262309819576b9b30e0280.pnj)
  
  
       ── .✦  nicknames and such are fine, i give ppl nicknames and a pet names if that is crossing ur boundaries, pls do let me know!
