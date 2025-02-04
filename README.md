@@ -20,7 +20,6 @@
       unless you're friendly, then i'll like u dw, just dont be weirdo and im sure we'll get along <3
 
       
-  ![](https://64.media.tumblr.com/c9a58303d09681ccf45f5392452af851/dcfcd66431d8f63b-f5/s2048x3072/c30e28dd1f9551ce27e19045ef14c1936907e9f2.pnj)
 
 
 
