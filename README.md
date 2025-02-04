@@ -5,7 +5,7 @@
      hai!! my name is sonia but u can call me sunny, mimi or sunsun ᦃ
    
   
-  ![](https://64.media.tumblr.com/7098c7f7209f7380dbee28076d0a2f42/555c4b73ed8c0b3e-f8/s540x810/0047b0f86dd268ab165084b9467c87035f842b12.pnj)
+  ![](https://64.media.tumblr.com/5d22a231c4dce13e1738d006111a2c83/ed76da2521d3cea6-6f/s400x600/2b2d8ccae42e43ab9c6b98b29871855db81c9fd0.gifv)
  
  
     ♡ nicknames and such are fine, i give ppl nicknames and a pet names if that is crossing ur boundaries, pls do let me know!
@@ -20,7 +20,8 @@
 
     ♡ i can forget to reply to things - if i do, please let me know!!! i try my best out here 
     
-  ![](https://64.media.tumblr.com/7098c7f7209f7380dbee28076d0a2f42/555c4b73ed8c0b3e-f8/s540x810/0047b0f86dd268ab165084b9467c87035f842b12.pnj)
+  
+  ![](https://64.media.tumblr.com/5d22a231c4dce13e1738d006111a2c83/ed76da2521d3cea6-6f/s400x600/2b2d8ccae42e43ab9c6b98b29871855db81c9fd0.gifv)
    
       i have quite a few fav games or media !! btw i just post and interact w what i like, 
       mainly my fav chars idc abt anything else (also i like gacha games but it's very critical...like very..
