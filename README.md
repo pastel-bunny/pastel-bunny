@@ -5,7 +5,7 @@
      ︵︵⠀ ⠀hai!! my name is sonia but u can call me sunny, mimi or sunsun 𓂃 ࣪˖ ִֶָ𐀔  
      nicknames and such are fine, i give ppl nicknames and a pet names if that is crossing ur boundaries, pls do let me know!
      im sorry if sometimes i am very sensitive or gatekeepy 
-     i luv to talk and make friends, so neva be afraid to dm me abt anything at all or sit w me in pt !!
+     i luv to talk and make friends, so neva be afraid to dm me abt anything !!
      eng isn't my first language, so i am sorry if sometimes i talk nonsense qwq
      sometimes i can be a blabbermouth, sorry i just like being open
      i can forget to reply to things - if i do, please let me know!!! i try my best out here ~⠀⠀⠀
