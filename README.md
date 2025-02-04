@@ -20,8 +20,7 @@
 
       ── .✦  i can forget to reply to things - if i do, please let me know!!! i try my best out here ⠀⠀⠀
     
-  
-  ![](https://64.media.tumblr.com/5d22a231c4dce13e1738d006111a2c83/ed76da2521d3cea6-6f/s400x600/2b2d8ccae42e43ab9c6b98b29871855db81c9fd0.gifv)
+ ![](https://64.media.tumblr.com/3bdcd560c8636d044e200af0db21482e/0204d4661e661699-3d/s400x600/bb1c6b6f566624224c262309819576b9b30e0280.pnj)
    
       i have quite a few fav games or media !! btw i just post and interact w what i like, 
       mainly my fav chars idc abt anything else (also i like gacha games but it's very critical...like very..
