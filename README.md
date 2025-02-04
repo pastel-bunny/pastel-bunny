@@ -2,7 +2,7 @@
 
 
      
-     haii!! my name is sonia but u can call me sunny, mimi or sunsun ᦃ
+     hai!! my name is sonia but u can call me sunny, mimi or sunsun ᦃ
    
   
   ![](https://64.media.tumblr.com/fd34215cb4f8c6d0810b3692cab4d9cf/83dcd931f6035a12-ce/s2048x3072/2a9013a2ce6ad7240c25bad782203fc45d8a7d1c.pnj)
