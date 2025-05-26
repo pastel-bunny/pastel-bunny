@@ -9,8 +9,8 @@
 ✦ nicknames and such are fine ( i like it !! ) 
 i also like to give ppl cute nicknames if that is crossing ur boundaries, pls do let me know !!
 i love to talk and make friends, so never be afraid to dm me abt anything at all !!
-eng isn't my first language, so i am sorry if i talk nonsense 
-sometimes i can be a blabbermouth, sorry i just like being open
+eng isn't my first language, so i am sorry if i talk nonsense.
+sometimes i can be a blabbermouth, sorry i just like being open.
 i can forget to reply to things - if i do, please let me know!!! i try my best out here
 
 ✦ i have quite a few fav games or media btw i just post and interact w what i like,
