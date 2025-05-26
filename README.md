@@ -2,9 +2,9 @@
   ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝓵𝓮𝓽 𝓽𝓱𝓮 𝓬𝓵𝓸𝓾𝓭𝓼 𝓱𝓮𝓪𝓵 𝓶𝓮 𝓸𝓯 𝓽𝓱𝓮 𝓼𝓽𝓲𝓷𝓰𝓼ㅤㅤㅤㅤ ╱ㅤㅤ 𝓰𝓮𝓷𝓽𝓵𝔂 𝔀𝓲𝓹𝓮 𝓽𝓱𝓮 𝓼𝓸𝓻𝓻𝓸𝔀 𝓸𝓯𝓯 𝓶𝔂 𝓵𝓲𝓯𝓮⠀⠀⠀ꕀㅤㅤ⠀⠀⠀𝓲 𝓭𝓻𝓮𝓪𝓶 ꒱
   
 
-![](https://64.media.tumblr.com/c020b7429be214bcc13925c702587f9c/4a29b0987b908bbc-46/s250x400/f3c6654b4b857206e031c224a15afd08a1f5306e.gifv)୭ ˚. ᵎᵎ
+![](https://64.media.tumblr.com/c020b7429be214bcc13925c702587f9c/4a29b0987b908bbc-46/s250x400/f3c6654b4b857206e031c224a15afd08a1f5306e.gifv) 𓏲 ๋࣭ ࣪ ˖
 
-︵︵    𝒜 little bit abt me: 
+︵︵     ㅤ b4 int: 
 
 ✦ nicknames and such are fine (i like it!!) 
 i also like to give ppl cute nicknames if that is crossing ur boundaries, pls do let me know !!
@@ -20,7 +20,7 @@ for example avid HARDCORE DEFENDER DISCOURSE PARTICIPATOR ETC ETC honkai/genshin
 or the like watch OUT PLS!!!!
 unless you're friendly, then i'll like u dw, just dont be weirdo and im sure we'll get along  ^_^
 
-![](https://64.media.tumblr.com/ddffea4c4a33e911f636bd1e24d83b6c/370a0cbf8656c278-e2/s1280x1920/f095b8ca22c28c0827251084b2b231d954e5b3c6.pnj)
+
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
