@@ -6,7 +6,7 @@
 
 ︵︵     ㅤ b4 int: 
 
-✦ nicknames and such are fine (i like it!!) 
+✦ nicknames and such are fine ( i like it !! ) 
 i also like to give ppl cute nicknames if that is crossing ur boundaries, pls do let me know !!
 i love to talk and make friends, so never be afraid to dm me abt anything at all !!
 eng isn't my first language, so i am sorry if i talk nonsense 
