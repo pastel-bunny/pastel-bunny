@@ -3,7 +3,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ꒰ let my heart bravely spread the wings ✦ ㅤㅤㅤㅤㅤㅤㅤㅤㅤsoaring past the night⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀» to trace the bright moonlight ㅤㅤㅤㅤㅤㅤㅤㅤㅤꕀ  let the clouds heal me of the stingsㅤㅤ╱ㅤㅤ gently wipe the sorrow off my life
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀» to trace the bright moonlight ㅤㅤㅤㅤㅤㅤㅤㅤㅤꕀ  let the clouds heal me of the stingsㅤㅤ╱ㅤㅤ gently wipe the sorrow off my life
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀i dream  ꒱⠀  
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
